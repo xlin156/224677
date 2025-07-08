@@ -25,4 +25,4 @@
 免费无注册，免会员观看
 所有视频完全免费，无需任何形式的注册或付费。你可以直接点击观看，无需下载任何播放器或插件，让你享受最简便的观看体验。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/xlin156/224677 ）</span>
